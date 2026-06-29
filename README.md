@@ -16,7 +16,7 @@
 
 💬 Ask me about **java,... or anything [here](https://github.com/hugnapl/hugnapl/issues)**
 
-⚡ Fun fact **Mikita**
+⚡ Fun fact **Milkita milk candy is made from milk!!**
 
  </div>
  
